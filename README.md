@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Social Media
 - 🤔 I’m looking for help with Stockoverflow
 - 💬 Ask me about Tech
-- 📫 How to reach me: Can contact me at contact@mitradev.my.id
+- 📫 How to reach me: Can contact me at mitrasurya7@gmail.com
 
